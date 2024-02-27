@@ -1,2 +1,2 @@
 # self_learning
-nothing
+do follow
